@@ -1,1 +1,0 @@
-# fridgesnap.github.io
